@@ -27,4 +27,4 @@ Email me Now **vatshayan007@gmail.com** to get this Full Project Code, PPT, Repo
 
 Mail/Message me for Projects Help 🙏🏻
 
-### More Blockchain Projects : https://vatshayan.medium.com/top-3-blockchain-final-year-projects-e910c25403a4
+### More Cryptography Projects : https://www.youtube.com/playlist?list=PL5g-9zkOohaEjY1QJ-ghz6EcELRNhHb4y
